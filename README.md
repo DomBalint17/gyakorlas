@@ -1,0 +1,2 @@
+# gyakorlas
+órai munka
